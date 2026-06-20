@@ -1,1 +1,1 @@
-### Thingking-Machine (oaio).
+### Meta-Truth (oaio).
